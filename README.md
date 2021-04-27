@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SamDevScirpter
+- 📫 How to reach me Discord:samnotfound#4202
